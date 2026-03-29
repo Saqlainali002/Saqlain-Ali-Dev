@@ -1,7 +1,7 @@
 # Hi I'm Saqlain Ali
 
 Senior Full Stack & Native Mobile App Developer  
-Based in Pakistan | Open to Remote Opportunities 🌍  
+Based in Pakistan | Open to Remote Opportunities   
 
 ---
 
